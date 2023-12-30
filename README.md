@@ -138,7 +138,7 @@ fw6
 
 ## Touch Me  ˊ•⌔•ˋ 
 
-|[Discord](https://discord.gg/xm4DN6JTVt)|[Github](https://github.com/DSDmark/)|[LinkIn]()|[DevToCommunity](https://dev.to/dsmark)|[Gmail](sahup3296@gmail.com)|
+|
 |:-|:-|:-|:-|:--|
 ---
 
